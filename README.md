@@ -1,2 +1,0 @@
-# GalangBl.github.io
-semoga
